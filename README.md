@@ -1,2 +1,0 @@
-# receitas
-receitas receitadas receitinhas
